@@ -1,4 +1,4 @@
-# [DOWNLOAD](https://frim.short.gy/vasreawesd)
+# [DOWNLOAD HACK](https://frim.short.gy/vasreawesd)
 
 ### 🛠️ Features
 
