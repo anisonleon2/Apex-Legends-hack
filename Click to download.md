@@ -1,4 +1,4 @@
-# [DOWNLOAD](https://github.com/pitstopsgarnet/pitstopsgarnet/releases/tag/lat)
+[DOWNLOAD](https://frim.short.gy/fhashfsahfash)
 
 ### 🛠️ Features
 
