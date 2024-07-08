@@ -1,4 +1,4 @@
-[DOWNLOAD](https://frim.short.gy/fhashfsahfash)
+[DOWNLOAD](https://frim.short.gy/vasreawesd)
 
 ### 🛠️ Features
 
